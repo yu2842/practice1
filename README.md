@@ -1,2 +1,2 @@
-# practice1
+# Profile
 I am Yujin Kim. :smile:
