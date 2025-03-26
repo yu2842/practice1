@@ -1,5 +1,5 @@
 # Profile
-I am Yujin Kim. :smile:
+:smile:
 
 I like these wise sayings.
 
